@@ -1,9 +1,11 @@
-**Name: Sameer Hussain | sameerhussain44332211@gmail.com
+Song “Ham Gilgit-Baltistan k Hain” (ہم گلگت بلتستان کے ہیں۔)
+
+Name: Sameer Hussain | sameerhussain44332211@gmail.com
 Term Assignment Ethnomusicology,
  Institute of business administration Karachi (IBA KARACHI)
 
 Topic for research: Song “Ham Gilgit-Baltistan k Hain” (ہم گلگت بلتستان کے ہیں۔)
-Singer: Salman Paras | Lyrics: Zafar Waqar Taj**
+Singer: Salman Paras | Lyrics: Zafar Waqar Taj
  
 Image shows the thumbnail of song “Ham Gilgit-Baltistan k Hain" on YouTube
 Introduction
