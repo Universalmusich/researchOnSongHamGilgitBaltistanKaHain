@@ -1,4 +1,4 @@
-**Name: Sameer Hussain 
+**Name: Sameer Hussain | sameerhussain44332211@gmail.com
 Term Assignment Ethnomusicology,
  Institute of business administration Karachi (IBA KARACHI)
 
